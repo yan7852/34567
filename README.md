@@ -27,4 +27,4 @@
 5. 多种分类，精确搜索
 为了更好地帮助你找到想要的影片，我们提供了精确的分类功能。您可以按女优名字、影片番号、类别、热门程度等多种方式筛选，确保快速找到自己喜欢的影片。不仅如此，我们还定期更新影片内容，第一时间为您带来最新的日本AV作品。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/yan7852/34567 ）</span>
